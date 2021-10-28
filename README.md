@@ -1,0 +1,2 @@
+adım kohizk
+o kadar
